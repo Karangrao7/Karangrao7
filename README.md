@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Pretty much can't be disclosed.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: karangrao3@gmail.com
-Check my YouTube channel- #Ghostkaran or Ghostkaran
+- Check my YouTube channel- #Ghostkaran or Ghostkaran
 
 <!---
 Karangrao7/Karangrao7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
